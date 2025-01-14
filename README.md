@@ -13,6 +13,5 @@
     [strawpage](https://lcb34.straw.page/)
     [atabook](https://lcb34.atabook.org/)
     [tumblr](https://3x09x1.tumblr.com/?source=share)
-    [pt info.. Working on this..]
   <br><br>
 <img src=https://github.com/user-attachments/assets/4a6a0eb8-aae9-4821-afab-10a1e91b8e6a>
