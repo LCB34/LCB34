@@ -1,5 +1,6 @@
 <p align="center">
-  
+  <img src=https://github.com/user-attachments/assets/4f786eb5-a1be-45ab-a5ce-5826eba7b1f1> <img src=https://github.com/user-attachments/assets/4f786eb5-a1be-45ab-a5ce-5826eba7b1f1>
+
   </p>
 
 <p align="center">
@@ -13,4 +14,7 @@
     [atabook](https://lcb34.atabook.org/)
     [tumblr](https://3x09x1.tumblr.com/?source=share)
   <br><br>
+![kjfwem](https://github.com/user-attachments/assets/8825ef50-bdcb-49fb-963a-14face100854)
+
+  
   ***
