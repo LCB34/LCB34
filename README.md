@@ -9,11 +9,12 @@
 </p>
 <div align=center>
   
-   [About me](https://stellular.net/LCB34) 
-   [Pronouns.cc](https://pronouns.cc/@3x09x1)
-    [strawpage](https://lcb34.straw.page/)
-    [atabook](https://lcb34.atabook.org/)
-    [tumblr](https://3x09x1.tumblr.com/?source=share)
+   [About me](https://stellular.net/LCB34) 🧪
+   [Pronouns.cc](https://pronouns.cc/@3x09x1) ⭐
+    [strawpage](https://lcb34.straw.page/) 🧪
+    [atabook](https://lcb34.atabook.org/) ⭐
+    [tumblr](https://3x09x1.tumblr.com/?source=share) 🧪
+    [Selfships](https://docs.google.com/spreadsheets/d/1-EU5Tw7m-dFdLTFfKA0BA86avOmRTfVgRsw-BfhHVnk/edit?usp=drivesdk)
 </div>
 
 <img src=https://github.com/user-attachments/assets/ad705d59-d3f0-4d5d-aa96-7ac40651e9d2>
