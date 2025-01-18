@@ -8,7 +8,7 @@
  <img src=https://github.com/user-attachments/assets/248d3a5a-3c22-4c75-b35a-665ef2feccad>
 </p>
 <div align=center>
-sancho\donquixote \3x\09\x1\ angela
+sancho\donquixote\3x\09\x1\angela
  
   Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-..
 
