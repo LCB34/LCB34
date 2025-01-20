@@ -9,8 +9,8 @@
 </p>
 <div align=center>
 sancho\donquixote\3x\09\x1\angela
- 
-  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-..
+
+  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. also.. so many people.. kyaa!! >//////<!!!!
 
    [About me](https://stellular.net/LCB34) 🧪
    [Pronouns.cc](https://pronouns.cc/@3x09x1) ⭐
