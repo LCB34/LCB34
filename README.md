@@ -6,11 +6,12 @@
 <img src=https://github.com/user-attachments/assets/8bbdaed8-a9d0-43e3-8ce1-7f81b50e9dd9>
 </p>
 <div align=center>
-  sancho\donquixote\3x\09\x1\angela
  
-   GIRLS X GIRLS WARNING!!!! + I'm so scared of and love everyone!!!. Hope this helps ❤️❤️❤️❤️❤️ I have lvo3 in my heart forever Okay i love you i love you i love you
+ sancho\donquixote\3x\09\x1\angela\nelly
  
-  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-..
+ GIRLS X GIRLS WARNING!!!! + I'm so shy of and love everyone!!!. Hope this helps ❤️❤️❤️❤️❤️ I have lvo3 in my heart forever Okay i love you i love you i love you
+ 
+  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. Also chronic pain makes my energy fluctuate heavily so i apologize 
 
    [About me](https://stellular.net/LCB34) 🧹
    [Pronouns.cc](https://pronouns.cc/@3x09x1) 🪻
@@ -23,6 +24,6 @@
 <img src=https://github.com/user-attachments/assets/ad705d59-d3f0-4d5d-aa96-7ac40651e9d2>
 
 <div align=center>
-<img src=https://github.com/user-attachments/assets/97dddc82-98e8-40c7-ab8e-e96159486bdd width=200>
+<img src=https://github.com/user-attachments/assets/97dddc82-98e8-40c7-ab8e-e96159486bdd width=200><img src=https://github.com/user-attachments/assets/d3310e15-3ecc-4b26-bbca-881299a1a008 width=200 height=200><img src=https://github.com/user-attachments/assets/a0acdc57-0365-4f4b-b5e5-6b1bf002444f width=200 height=200>
 
 </div>
