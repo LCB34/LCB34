@@ -8,9 +8,12 @@
  <img src=https://github.com/user-attachments/assets/248d3a5a-3c22-4c75-b35a-665ef2feccad>
 </p>
 <div align=center>
-sancho\donquixote\3x\09\x1\angela
-
-  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. also.. so many people.. kyaa!! >//////<!!!!
+ 
+  sancho\donquixote\3x\09\x1\angela
+ 
+   GIRLS X GIRLS WARNING!!!! + I'm so scared of and love everyone!!!. Hope this helps ❤️❤️❤️❤️❤️ I have lvo3 in my heart forever Okay i love you i love you i love you
+ 
+  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-..
 
    [About me](https://stellular.net/LCB34) 🧪
    [Pronouns.cc](https://pronouns.cc/@3x09x1) ⭐
@@ -21,3 +24,8 @@ sancho\donquixote\3x\09\x1\angela
 </div>
 
 <img src=https://github.com/user-attachments/assets/ad705d59-d3f0-4d5d-aa96-7ac40651e9d2>
+
+<div align=center>
+<img src=https://github.com/user-attachments/assets/97dddc82-98e8-40c7-ab8e-e96159486bdd width=200>
+
+</div>
