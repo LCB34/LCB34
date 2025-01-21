@@ -3,15 +3,16 @@
 </p>
 <p align=center>
 <img src=https://github.com/user-attachments/assets/87058d37-49c9-4ea6-be90-023b25fc36bb width=200 height=200>
-<img src=https://github.com/user-attachments/assets/8bbdaed8-a9d0-43e3-8ce1-7f81b50e9dd9>
-</p>
+</p> <img src=https://github.com/user-attachments/assets/8bbdaed8-a9d0-43e3-8ce1-7f81b50e9dd9>
 <div align=center>
  
- sancho\donquixote\3x\09\x1\angela\nelly
+  sancho\donquixote\3x\09\x1\angela\nelly
+
+the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy
  
- GIRLS X GIRLS WARNING!!!! + I'm so shy of and love everyone!!!. Hope this helps ❤️❤️❤️❤️❤️ I have lvo3 in my heart forever Okay i love you i love you i love you
+ GIRLS X GIRLS WARNING!!!! + I'm so shy of and love everyone!!!. Hope this helps ❤️❤️❤️❤️❤️ I have lvo3 in my heart forever Okay i love you i love you i love you. + I love spreadsheets & Wikipedia she is my wife
  
-  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. Also chronic pain makes my energy fluctuate heavily so i apologize 
+  Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. Also chronic pain makes my energy fluctuate heavily .. But i enjoy watching every1 converse :)
 
    [About me](https://stellular.net/LCB34) 🧹
    [Pronouns.cc](https://pronouns.cc/@3x09x1) 🪻
