@@ -6,7 +6,7 @@
 </p> <img src=https://github.com/user-attachments/assets/8bbdaed8-a9d0-43e3-8ce1-7f81b50e9dd9>
 <div align=center>
  
-  sancho\donquixote\3x\09\x1\angela\nelly
+  sancho\donquixote\3x09x1\angela\nelly
 
 the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy
  
