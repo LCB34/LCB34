@@ -10,8 +10,6 @@
 
 the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy
  
- GIRLS X GIRLS WARNING!!!! + I'm so shy of and love everyone!!!. Hope this helps ❤️❤️❤️❤️❤️ I have lvo3 in my heart forever Okay i love you i love you i love you. + I love spreadsheets & Wikipedia she is my wife
- 
   Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. Also chronic pain makes my energy fluctuate heavily .. But i enjoy watching every1 converse :)
 
    [About me](https://stellular.net/LCB34) 🧹
