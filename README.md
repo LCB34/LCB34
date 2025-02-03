@@ -1,8 +1,10 @@
 <p align=center>
 <img src=https://file.garden/Z1K-n7bjjD-R7xT4/Don_Quixote_Sancho_StoryLog.png
  width=200 height=200>
-</p> <img src=https://github.com/user-attachments/assets/8bbdaed8-a9d0-43e3-8ce1-7f81b50e9dd9>
-<div align=center>
+</p> 
+<div align=center> 
+
+ ─── ⋆⋅☆⋅⋆ ───
  
   sancho\donquixote\3x09x1\angela\nelly
 
@@ -16,9 +18,9 @@ the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon relat
     [atabook](https://lcb34.atabook.org/) 🩸
     [tumblr](https://3x09x1.tumblr.com/?source=share) ⭐
     [Selfships](https://docs.google.com/spreadsheets/d/1-EU5Tw7m-dFdLTFfKA0BA86avOmRTfVgRsw-BfhHVnk/edit?usp=drivesdk)
-</div>
 
-<img src=https://github.com/user-attachments/assets/ad705d59-d3f0-4d5d-aa96-7ac40651e9d2>
+   ─── ⋆⋅☆⋅⋆ ───
+</div>
 
 <div align=center>
 <img src=https://github.com/user-attachments/assets/97dddc82-98e8-40c7-ab8e-e96159486bdd width=200 height=200><img src=https://github.com/user-attachments/assets/d3310e15-3ecc-4b26-bbca-881299a1a008 width=200 height=200><img src=https://github.com/user-attachments/assets/a0acdc57-0365-4f4b-b5e5-6b1bf002444f width=200 height=200><img src=https://github.com/user-attachments/assets/5555d30d-f407-473e-aac7-00534c1c86d8 width=200 height=200><img src=https://github.com/user-attachments/assets/f2f6b16c-ed4a-4217-894a-0bf34dc1c863  width=200 height=200>
