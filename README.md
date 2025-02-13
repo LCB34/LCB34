@@ -1,9 +1,8 @@
-<p align=center>
-<img src=https://file.garden/Z1K-n7bjjD-R7xT4/Don_Quixote_Sancho_StoryLog.png
- width=200 height=200>
-</p> 
-<div align=center> 
 
+<p align=center>
+<img src=https://github.com/user-attachments/assets/76423d76-2a02-4366-9acd-9ab958af48fe
+ width=200 height=200></p> 
+<div align=center> 
  ─── ⋆⋅☆⋅⋆ ───
  
   sancho\donquixote\3x09x1\angela\nelly
