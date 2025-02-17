@@ -8,6 +8,8 @@
   sancho\donquixote\3x09x1\angela\nelly
 
 the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy
+
+Unfortunately i get quite dizzy and overstimulated in spots where there's a lot of people or movement so I usually sit at the library or very very close to my friends!
  
   Apologies if i ever behave shy\quiet within groups . i promise im like a kitty kneading you and purring .. I just think that everyone is so cool -w-.. Also chronic pain makes my energy fluctuate heavily .. But i enjoy watching every1 converse :)
 
