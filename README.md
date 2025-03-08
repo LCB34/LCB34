@@ -28,6 +28,7 @@ Chronic pain (i will complain abt my pains) combined with mood swings and energy
  
 </div>
 
+
 <div align=center>
 YouTube
  
@@ -63,7 +64,12 @@ Volume warning
 
 https://github.com/user-attachments/assets/abc50c23-a3d4-4460-9900-92912753e25b
 
+https://github.com/user-attachments/assets/77d2c934-8ad6-4b2b-975a-b0d9614e2009
 
+https://github.com/user-attachments/assets/c02b51a7-9257-4a8f-a8d8-25a6bdb34400
 
+https://github.com/user-attachments/assets/c5f49bde-8d5a-4102-a960-51e2b474d9f7
+
+https://github.com/user-attachments/assets/fdd2679c-2f76-4629-a052-7fb8124693fb
 
 </div>
