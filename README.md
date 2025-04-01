@@ -5,7 +5,7 @@
 <div align=center> 
  ─── ⋆⋅☆⋅⋆ ───
  
-  sancho\donquixote\3x09x1\angela\nelly
+  sancho\3x09x1\angela\
 
 the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy
 
