@@ -5,13 +5,11 @@
 <div align=center> 
  ─── ⋆⋅☆⋅⋆ ───
  
-  sancho\3x09x1\angela\
+  sancho\3x09x1\angela
 
-the BIGGEST RyoDon\Lcb34\lcb0304\🚬🎠 fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy
+the BIGGEST RyoDon fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy!! very open to other a well
 
-Unfortunately i get quite dizzy and overstimulated in spots where there's a lot of people or movement so I usually sit at the library or very very close to my friends! 
-
-Chronic pain (i will complain abt my pains) combined with mood swings and energy levels do make me fluctuate on how much i want to talk quite a bit 3: + unfortunately i get very anxious in some situations>_< i promise i mean well..
+Chronic pain make me fluctuate on how much i want to talk quite a bit 3: + unfortunately i get very anxious in some situations>_< i promise i mean well..!! I'm friendly.. Trust
  
    [About me](https://stellular.net/LCB34) ⭐
    [Pronouns.cc](https://pronouns.cc/@3x09x1) 🩸
