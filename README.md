@@ -14,7 +14,6 @@ Chronic pain make me fluctuate on how much i want to talk quite a bit 3: + unfor
    [Pronouns.cc](https://pronouns.cc/@3x09x1) 🩸
     [strawpage](https://lcb34.straw.page/) ⭐
     [atabook](https://lcb34.atabook.org/) 🩸
-    [tumblr](https://3x09x1.tumblr.com/?source=share) ⭐
     [Selfships](https://docs.google.com/spreadsheets/d/1-EU5Tw7m-dFdLTFfKA0BA86avOmRTfVgRsw-BfhHVnk/edit?usp=drivesdk)
 
    ─── ⋆⋅☆⋅⋆ ───
