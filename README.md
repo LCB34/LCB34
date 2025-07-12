@@ -6,7 +6,7 @@
  
   sancho\3x09x1\angela
 
-the BIGGEST RyoDon fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy!!
+the BIGGEST RyoDon fan on PT!!.. plz send me ryodon related things on strawpage :3 I'll be so Happy!! And i also have like 30+ don\sancho ponies 3: ..........
 
 Chronic pain make me fluctuate on how much i want to talk quite a bit 3: + unfortunately i get very anxious in some situations>_< i promise i mean well..!!
  
