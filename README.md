@@ -6,7 +6,7 @@
  
   sancho\3x09x1\angela
   
-i really like ryodon & my social skills arent the best but i really love people... !!.i iust have issues and problems
+i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems
 
    [About me](https://stellular.net/LCB34) ⭐
    [Pronouns.cc](https://pronouns.cc/@3x09x1) 🩸
