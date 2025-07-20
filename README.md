@@ -6,7 +6,7 @@
  
   **sancho\3x09x1\angela**
 
-  **i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems**
+  **i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems + i get really scared easily like a horse.. feed me carrots**
   
   **linky links**
   
