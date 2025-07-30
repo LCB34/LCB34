@@ -7,6 +7,9 @@
   **sancho\3x09x1\angela**
 
   **i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems + i get really scared easily like a horse.. feed me carrots**
+
+  **Baby Don caretaking tutorial
+Feed the Baby Don to make her Grow Use Soap and Water to clean your Baby Don Use Sofdt towel to Dry your Baby Don so she is not Cold and Wet Gently brush the Baby Don hair and place her Within Warm Blanket while she Dries then Feed the Baby Don her preferred food to keep herBelly Full and Happy**
   
   **linky links**
   
