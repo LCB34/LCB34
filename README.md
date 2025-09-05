@@ -12,7 +12,7 @@
   
    [**About me**](https://stellular.net/LCB34) ⭐
    [**Pronouns.cc**](https://pronouns.cc/@3x09x1) 🩸
-    [**strawpage; image heavy, may take a bit to load, flashing gifs, and bright colors.. its basically just a collection of images gifs etc**](https://lcb34.straw.page/) ⭐
+    [**strawpage; image heavy, may take a bit to load, flashing gifs, and bright colors..**](https://lcb34.straw.page/) ⭐
     [**atabook**](https://lcb34.atabook.org/) 🩸
     [**Selfships**](https://docs.google.com/spreadsheets/d/1-EU5Tw7m-dFdLTFfKA0BA86avOmRTfVgRsw-BfhHVnk/edit?usp=drivesdk)
 
