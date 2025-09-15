@@ -10,7 +10,7 @@
   
   **linky links**
   
-   [**About me**](https://stellular.net/LCB34) ⭐
+   [**About me**](https://sntry.cc/ryodon) ⭐
    [**Pronouns.cc**](https://pronouns.cc/@3x09x1) 🩸
     [**strawpage; image heavy, may take a bit to load, flashing gifs, and bright colors..**](https://lcb34.straw.page/) ⭐
     [**atabook**](https://lcb34.atabook.org/) 🩸
