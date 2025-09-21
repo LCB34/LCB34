@@ -6,9 +6,7 @@
  
   **sancho\3x09x1\angela**
 
-  **i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems + i get really scared easily like a horse.. feed me carrots .. also i might mimick you if i like you ... sorry.. im from deep ocean and idk how to behave like a human.....**
-
-  **fairly prone to taking inspo for ponies from others.. 2 people who say don't take inspo .. we all take inspiration from someone even if you're not meaning to... i will tske inspo...........**
+  **i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems + i get really scared easily like a horse.. feed me carrots .. also i might mimick you if i like you ... sorry.. im from deep ocean sea and idk how to behave like a human.....**
   
   **linky links**
   
