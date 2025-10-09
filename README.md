@@ -1,19 +1,14 @@
 
-<p align=center>
-<img src=https://github.com/user-attachments/assets/1fe79ca0-7dd9-4631-b726-866cd4b3174e></p> 
-<div align=center> 
-─── ⋆⋅☆⋅⋆ ───
- 
-  **sancho\3x09x1\angela**
+<p align=left> <a href="https://files.catbox.moe/gq7ox9.png"><img src="https://files.catbox.moe/i4fsmq.png" alt=" Scolipede"></a> <b> <i> welcome to my github!~ </i> </b></p>
+hello , am 3x! or sancho, or scoli **it\its**, any prns, any neos <br> disabled,neurodivergent, black
+ </div>
+ <p align=right> <b> <i> info+pt info </i> </b> <a href="https://files.catbox.moe/i4fsmq.png"><img src="https://files.catbox.moe/o9iuz2.png"alt="Scolipede"></a> </p>
+<p align=right> i enjoy chilling and watching things go by~
+ <br> I like drawing art of fandom and my ocs! <br>
+ <br> on ponytown, i sit by the library, or next tomy friends, cuddles are encouraged!!, though i do not consistentlyhave lots of energy to speak with others..eep in mind i am fairly drowsy or and shy, if i seem cold i promise its just me being tired :D, </p>
 
-  **i really like ryodon & my social skills are not the best but i really love people... !!.i iust have issues and problems + i get really scared easily like a horse.. feed me carrots .. also i might mimick you if i like you ... sorry.. im from deep ocean sea and idk how to behave like a human.....**
-  
-  **linky links**
-  
-   [**About me**](https://sntry.cc/ryodon) ⭐
-   [**Pronouns.cc**](https://pronouns.cc/@3x09x1) 🩸
-    [**strawpage; image heavy, may take a bit to load, flashing gifs, and bright colors..**](https://lcb34.straw.page/) ⭐
-    [**atabook**](https://lcb34.atabook.org/) 🩸
-    [**Selfships**](https://docs.google.com/spreadsheets/d/1-EU5Tw7m-dFdLTFfKA0BA86avOmRTfVgRsw-BfhHVnk/edit?usp=drivesdk)
+ <p align=left> <a href="https://files.catbox.moe/o9iuz2.png"><img src="https://files.catbox.moe/gq7ox9.png"alt=shiny scolipede></a> <b> <i> links </i></b>
 
-   ─── ⋆⋅☆⋅⋆ ───
+ <p align=right> <b> <i> cool youtube videos </i> </b> <a href="https://files.catbox.moe/t1apdw.png"><img src="https://files.catbox.moe/t1apdw.png"alt="shiny scolipede"></a>
+
+ WIP 
