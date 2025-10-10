@@ -5,7 +5,10 @@ hello , am 3x! or sancho, or scoli <br> **it\its**, any prns, any neos <br> disa
  <p align=center> <b> <i> info+pt info </i> </b> <a href="https://files.catbox.moe/i4fsmq.png"><img src="https://files.catbox.moe/o9iuz2.png"alt="Scolipede"></a> </p>
 <p align=center> i enjoy chilling and watching things go by~
  <br> I like drawing art of fandom and my ocs!:<br>
-<p align=center> on ponytown, i sit by the library, or next tomy friends, cuddles are encouraged!!,Usually I'm watching videos, playing games, or drawing while online, so i might be a little distracted, I'm not good at seeing whispers or messages, they may be late responses!</p>
+<p align=center> on ponytown, i sit by the library, or next tomy friends 
+ <br> cuddles are encouraged!!
+ <br> ,Usually I'm multitasking so i might be a little distracted or drowsy 
+ <br> I'm not good at seeing whispers or messages, they may be late responses!</p>
 
  <p align=center> <a href="https://files.catbox.moe/o9iuz2.png"><img src="https://files.catbox.moe/gq7ox9.png"alt=shiny scolipede></a> <b> <i> links </i></b>
 
