@@ -11,4 +11,4 @@ hello , am 3x! or sancho, or scoli <br> **it\its**, any prns, any neos <br> disa
 
  <p align=center> <b> <i> cool sites\videos\etc</i> </b> <a href="https://files.catbox.moe/t1apdw.png"><img src="https://files.catbox.moe/t1apdw.png"alt="shiny scolipede"></a> <br> <a href="https://youtu.be/Z1UWsBJ5HgU"> A kittens nap time(Youtube)</a> <br> <a href="https://youtu.be/UoYMK1olf4s"> Snail Eating Ritz Cracker But There's Doom Music(Youtube)</a>
 
- WIP , when i figure out padsing and margins thisll look half decent on PCs 
+ WIP , might look 50\50 on pcs sorry!!
