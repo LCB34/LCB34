@@ -6,5 +6,5 @@ hi You Are at my Github🤩,<br>
  <br>
  i love all my friends+green names a whole lot even if we dont talk much! :D , friends enc to c+h and yap a whole lot
  <br>
- basic dni , i mute+hide frreeely . and dont be mean to my friends. <17 iwc
+ basic dni , i mute+hide frreeely . and dont be mean to my friends. <16 iwc
 </p>
